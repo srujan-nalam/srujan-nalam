@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **srujan.nalam@gmail.com**
 
-- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/1ETeOdNkACoSpoiDkq5vuf0Nk_YpP_czS/view?usp=share_link)
+- 📄 Know about my experiences [RESUME]
 
 - ⚡ Fun fact **I think I am funny**
 
